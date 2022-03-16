@@ -18,14 +18,11 @@
 ## Modo de Preparo: :stew:
 
 
-1. Bata no liquidificador o milho/ervilha, o requeijão, o creme de leite e a água.
+ 1. Bata no liquidificador o milho/ervilha, o requeijão, o creme de leite e a água.
+ 2. Refogue o creme do liquidificador com o frango desfiado, as azeitonas e o sal até ficar com uma textura espessa.
+ 3. Coloque o refogado numa assadeira, cubra com mussarela e espalhe a batata palha por cima.
+ 4. Leve ao forno até borbulhar.
+ 5. Sirva com arroz branco.
 
-2. Refogue o creme do liquidificador com o frango desfiado, as azeitonas e o sal até ficar com uma textura espessa.
-
-3. Coloque o refogado numa assadeira, cubra com mussarela e espalhe a batata palha por cima.
-
-4. Leve ao forno até borbulhar.
-
-5. Sirva com arroz branco.
 
 ### Bom apetite! :yum:
